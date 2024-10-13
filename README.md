@@ -1,4 +1,4 @@
-## 👋 Our website will be thoroughly published after the article is received
+## 👋 Our website will be thoroughly published after the article is accepted
 Our website also ensures the relevant anonymity requirements.
 
 <!--
